@@ -1,6 +1,6 @@
 ## Welcome!! >>
 ![banner](https://github.com/subha-brata/Subha-Brata/blob/main/Subhabrata_mallik-Header.jpg)
-i eat. i code. i live.<br>Kolkata, India.<br>Let's collaborate and build something epic.
+i eat. i code. i live.<br>Pune, India.<br>Let's collaborate and build something epic.
 
 ## Reach out >>
 [![Instagram](https://img.shields.io/badge/Instagram-black?logo=Instagram&logoColor=white&style=for-the-badge&logoWidth=30)](https://instagram.com/r.mallik_jr) [![LinkedIn](https://img.shields.io/badge/LinkedIn-black?logo=linkedin&logoColor=white&style=for-the-badge&logoWidth=30)](https://linkedin.com/in/subha-brata) [![X](https://img.shields.io/badge/X-black?logo=X&logoColor=white&style=for-the-badge&logoWidth=30)](https://x.com/rmallik_jr) 
